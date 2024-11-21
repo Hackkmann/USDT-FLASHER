@@ -108,7 +108,7 @@ Global Network: Works with Ethereum, BNB, Polygon, Tron, and more.
 
 📧 24/7 support available.
 👉 Telegram: Support Team
-https://t.me/chaeun147
+https://t.me/FLASHUSDTy
 
 ---
 
